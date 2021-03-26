@@ -1,2 +1,0 @@
-# Percobaan
-first give
